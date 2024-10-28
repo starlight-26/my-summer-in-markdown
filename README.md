@@ -4,7 +4,7 @@
 My name is **Kirsty W** and I am in 10th grade. Im really excited to make new friends this year and hangout with my old ones. I love the color pink and elephants. Fun fact, my name actually means *ivory* in Thai. My birthday is November 26, that's why I consider the number 26 as my lucky number. I hope that this year will be full of new oppertunities and amazing memories.
 
 ## What are my Goals?
-I have big plans for this school year. Of course, as always, I plan on doing my best to maintain my 4.0 GPA. I also want to get at least 3's on all my AP tests. Besides school, I want to joing and particapte in more club events. For example, I will be joining **MUN** this year. I am also working on my speech for when I run to become *LTG* for **Key Club**. I hope that I can do my best to acomplish all of my plans.
+I have big plans for this school year. Of course, as always, I plan on doing my best to maintain my 4.0 GPA. I also want to get at least 3's on all my AP tests. Besides school, I want to join and particapte in more club events. For example, I will be joining **MUN** this year. I am also working on my speech for when I run to become *LTG* for **Key Club**. I hope that I can do my best to acomplish all of my plans.
 
 ## Giving Back to the Community
 This summer, I participated in many community service events through **Key Club**. Every month, Key Club hosts a *DCM* which has a small service project that allows you to gain hours. I am actually in charge of planning these events. We had three DCMS this summer, one for June, July, and August. We made thinking of you cards and bracelets for the elderly. We alo made *Freshmen Survival Packs* to give out during club rush. I am so thankful to be able to help my communities through these events.
